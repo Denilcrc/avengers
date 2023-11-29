@@ -2,4 +2,4 @@
 
 * Kurohigue 
 * Saint Garcia Saturn
-* Katakuri
+* Akainu
